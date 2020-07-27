@@ -1,6 +1,5 @@
-### Whats up
+### Welcome to my github!
 
-<!--
-**ImDora/ImDora** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-My name is Dora, I like to do internet stuff.
+I love studying multiple forms of cyber security, the human brain, speech patterns, music, and anticheating. 
+**Come check out the project I am managing @ discord.me/overflow**
+*my discord: BVFDora#1234*
