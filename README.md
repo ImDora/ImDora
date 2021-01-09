@@ -3,4 +3,4 @@
 I love studying cyber security and general security of programs along with the human brain, speech patterns, music, and anticheating.                                                          
 **Come check out the project I am managing @ discord.me/overflow**                                                                       
 
-*my discord: BVFDora#1234*
+*my discord: dora#1234*
